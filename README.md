@@ -52,7 +52,7 @@ Graduation Date: 2024
 
 Student Council President  
 Aksum University Science Shared Campus Boarding School, Central Zone, Tigray  
-September 2022 – June 2024  
+September 2021 – June 2024  
 
 - Led a team of 10 student officers in planning and executing school-wide initiatives  
 - Managed student council funds and budgeting activities  
